@@ -2,4 +2,4 @@
 
 brand-new
 
-ello, im Evan andnim brand new to all of this but im excited. cant wait to meet everybody.
+Ello, im Evan and im brand new to all of this but im excited. Cant wait to meet everybody.
